@@ -1,2 +1,1 @@
-# penguin-rescue-privacy
-Privacy Policy for Penguin Rescue
+# Privacy Policy - Penguin Rescue
