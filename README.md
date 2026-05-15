@@ -1,1 +1,1 @@
-# Privacy Policy - Penguin Rescue
+# Privacy Policy - Huddle Hustle
